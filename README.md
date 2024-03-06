@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on beginner level projects.
 - 📫 How to reach me: Email me here.
 - 😄 Pronouns: I learned a few Gutiar lessons.
-- ⚡ Fun fact: Being handicapped still interested in outdoor sports then indoor one.
+- ⚡ Fun fact: Being disabled still interested in outdoor sports then indoor one.
 
 <!---
 nps2004/nps2004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
